@@ -1,4 +1,4 @@
-<div align="center"> When he suddenly went away  . .  maybe i felt lonely
+<div align="center">     e e e me re dejaste en el juego asi tamos
     </p>
     <div align="center"> 
 <img align="center" src= https://i.postimg.cc/GmRTS0zZ/Untitled100-20250220122742.png top="450" height="400" width = 530px>
